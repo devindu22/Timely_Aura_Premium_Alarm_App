@@ -16,4 +16,5 @@ https://youtube.com/shorts/ibwxo5OlENQ
 
 <img width="1915" height="916" alt="Screenshot 2026-07-02 010316" src="https://github.com/user-attachments/assets/70b8f729-7177-4c19-8056-cc2d4fce613c" />
 
+<img width="1915" height="914" alt="Screenshot 2026-07-02 010334" src="https://github.com/user-attachments/assets/76081c5e-d930-4f94-aec9-7acb7e1d3b88" />
 
